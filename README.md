@@ -1,3 +1,5 @@
+![Banner](http://siliconorca.free.fr/Cyberpunk2077NightCity4Kanimatedwallpaper-ezgif.com-video-to-gif-converter.gif)
+
 ## 🛠 ShamuLC's GitHub Profile
 
 ### 👋 Hi there! I'm ShamuLC
