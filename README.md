@@ -1,4 +1,4 @@
-![Banner](https://cdn.discordapp.com/attachments/1139869610905186414/1282011928834609160/Cyberpunk2077NightCity4Kanimatedwallpaper-ezgif.com-video-to-gif-converter.gif?ex=66ddce26&is=66dc7ca6&hm=b457b586b3955643066bb1c3d97744029f17a7d887590da4d63758ccf82e410c&)
+![Banner](https://imgur.com/a/i3psPvC)
 
 ## 🛠 ShamuLC's GitHub Profile
 
