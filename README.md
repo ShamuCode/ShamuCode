@@ -1,4 +1,4 @@
-![Banner](https://imgur.com/a/i3psPvC)
+[Banner](https://imgur.com/nV8A9bm)
 
 ## 🛠 ShamuLC's GitHub Profile
 
